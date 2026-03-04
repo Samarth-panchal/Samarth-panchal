@@ -1,4 +1,4 @@
-# Hi, I'm Samarth Panchal 👋
+# Hi, I'm Samarth(Sam) Panchal 👋
 
 **Data Analyst @ Royal Bank of Canada | Toronto, Ontario 🍁**
 
